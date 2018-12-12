@@ -1,2 +1,0 @@
-# danymucic-
-mi primer proyecto
